@@ -6,3 +6,4 @@
 4) https://github.com/KatyashkaKras97/-hw6/blob/master/Снимок%20экрана%202018-04-06%20в%2019.25.31.png
 5) https://github.com/KatyashkaKras97/-hw6/blob/master/Снимок%20экрана%202018-04-06%20в%2019.40.56.png
 Вывод:из данной таблицы мы видим, что оба слова- aggravate and exacerbate используются с таким дополнением, как burglary, кроме того, можно заметить, что есть такие дополнения, с которыми употребляется только слово aggravate, например, symptom
+https://github.com/KatyashkaKras97/-hw6/blob/master/Снимок%20экрана%202018-04-06%20в%2020.42.22.png
